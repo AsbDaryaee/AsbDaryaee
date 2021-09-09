@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AsbDaryaee
+- 👀 I’m interested in EVERYTHING!
+- 🌱 I’m currently learning JS.
+- 💞️ I’m looking to collaborate on ..., What?
